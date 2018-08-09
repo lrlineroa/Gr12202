@@ -1,0 +1,1 @@
+Nuestro proyecto es sobre educacion incluyente, queremos analizar las opciones que tenemos y mas adelante decidiremos como evoluciona nuestro aplicativo
